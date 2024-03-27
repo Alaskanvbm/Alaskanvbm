@@ -1,6 +1,6 @@
 - Hello, I’m @Alaskanvbm
 - I’m interested in police, military, and aviation
-- I’m currently learning some small code
+- I’m currently learning some small code. I specialize in first responder liveries for cars. I do modeling as well.
 - I’m looking to collaborate on ROBLOX
 - You can reach me on discord "floppabeans"
 - He/Him

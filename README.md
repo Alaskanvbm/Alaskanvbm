@@ -1,14 +1,8 @@
-- Hello, I’m @Alaskanvbm
-- I’m interested in police, military, and aviation
-- I’m currently learning some small code. I specialize in first responder liveries for cars. I do modeling as well.
-- I’m looking to collaborate on ROBLOX
-- You can reach me on discord "floppabeans"
-- He/Him
+- ELS Developer
+- 5 years of developing experience
+- Months of ELS development experience
 
-PERSONAL
-I've been developing on ROBLOX for about 3 years. You can find my work in this link: https://docs.google.com/document/d/1HQ5ujEr2Emo5MDumgZmQeJYqgXCL0ckrSVRgF6xI858/edit?usp=sharing
-
-I'm also for hire for ROBLOX, as you can see in the link what I specialize in.
+I'm an ELS Developer and I've been doing it for a couple months. You can DM me on pretty much anything and I can respond as soon as I can. Lmk if you need any ELS done. I can do almost anything
 <!---
 Alaskanvbm/Alaskanvbm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
